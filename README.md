@@ -1,1 +1,1 @@
-毕业设计，心想蓝天，翱翔世界， we to fly！
+we to fly
